@@ -1,0 +1,1 @@
+#I am slowly learning git and how it works. I learned a little during the pre-work but now I am understanding what it is actually starting to mean. This journal will be a little short this time because I am just getting used to this. Side note- I am also getting pretty excited about the javascript and really starting to understand it..See ya tomorrow! -B
