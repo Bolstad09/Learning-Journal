@@ -1,0 +1,1 @@
+I've realized that writing code is super difficult at first, and once I FINALLY figure out what I'm supposed to be doing I actually get it and understand. I tend to actually try way too hard and think that its going to be way more complicated and then when I get the answer, its actually pretty simple.
