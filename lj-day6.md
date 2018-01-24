@@ -1,0 +1,1 @@
+#so far with this new lab I literally dont understand a single thing... everyone almost has it complete and I am really hoping lecture tomorrow will help me figure it out. I get a little bit of it but not nearly enough to even start my project. YIKES!
