@@ -1,0 +1,1 @@
+#They weren't kidding when they said Salmon Cookies is PITA. I am having the hardest time with the table I think its going to take me forever to figure it out. JS is starting to really kick my butt. I will eventually get it, just will be studying a lot more on my free time so I can understand the concept. Other than that, class is going well!
