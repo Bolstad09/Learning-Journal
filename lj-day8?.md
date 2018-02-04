@@ -1,0 +1,1 @@
+#Building a table on JS was probably the hardest thing yet.. I still dont really have it figured out, I completed it but I have no idea how I did that.
