@@ -1,0 +1,1 @@
+#Im really hoping this week isn't nearly as hard/busy as last week. Just like everyone else, I had to work 49 hours and then come to class - I was DYING. I basically slept all day on Sunday to recover from the week. Im starting to go into auto-pilot mode. Only a few more months!
